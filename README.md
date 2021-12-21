@@ -1,3 +1,7 @@
+## About me:
+
+I am a freethinker, I am an individual who does not believe in the doctrine of the 'mainstream media', unlike the sheeps that you are.
+
 
 ### Contact me:
 - Discord: Mistreaper#9452
