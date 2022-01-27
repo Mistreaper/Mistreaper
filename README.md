@@ -1,10 +1,5 @@
-## About me:
-(she/her)
 
-Noob.
-
-
-### 💀 Contact me 💀:
+## 💀 Contact me 💀:
 - Discord: Mistreaper#9452
 
 
