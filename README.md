@@ -1,6 +1,7 @@
 
-## 💀 Contact me 💀:
+## Contact me:
 - Discord: Mistreaper#9452
+- Reddit: u/MISTREAPERf
 
 
 
