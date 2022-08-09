@@ -19,7 +19,7 @@
 ### Contact me:
 - Discord: Mistreaper#9452
 
-### Donate and be based:
+### Donate and be based (**donations are closed due to the current crypto situation**):
 Donate to Monero:
 ```
 476nYa8KAEfCqaq9vMWPTxXHDHdtw6YVjcuUEG5SvDfgBR9V4MmHZWVf6rGiwUTLqwZznj4vx4QvALPj1v7ZEkDgPK8bZBi
